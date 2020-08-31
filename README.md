@@ -10,10 +10,10 @@ I like:
 
 -Writing (English of course)
 
--Games 
+-Games (brawl stars;)
 
 
 Yay
 
 ^0~0^
-.
+
