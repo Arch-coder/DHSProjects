@@ -13,7 +13,7 @@ I like:
 -Games (brawl stars;)
 
 
-Yay
+Yay!
 
 ^0~0^
 
